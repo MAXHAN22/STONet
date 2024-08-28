@@ -1,1 +1,1 @@
-# STONet codes will be posted after being accepted.
+# STONet codes has been posted.
